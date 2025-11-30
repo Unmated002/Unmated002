@@ -24,3 +24,9 @@ Things about me! <img width="20" height="20" alt="image" src="https://github.com
 2 . i like to draw !! ( especialy i like to draw gigi & brusha from dandy's world. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ac8a5780-1497-4da3-8a13-7c104b5e7343" />
 
 3 . i want to marry fictional character .. ITS FUCKING REALLL !!!! RAAAAAAAAAHHHHHHHHH 
+
+4 . Hates some of my friends in real life ..,
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/ec9cd865-ba1d-4cb4-a9cc-59e793678b16" />
+
+<img width="450" height="549" alt="image" src="https://github.com/user-attachments/assets/df13e042-2d73-4878-bb48-1b3a2a2bf9e9" />
+TQ FOR LOOKING AT THIS REPOSITORIES PARDON ME IF THERE SOME BAD GRAMMAR BYEE !!! <3
