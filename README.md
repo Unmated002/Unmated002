@@ -14,3 +14,7 @@ Things you should know before interact me .<img width="20" height="20" alt="imag
 4 . Do NOT spam whisp please it's annoying <img width="30" height="12" alt="image" src="https://github.com/user-attachments/assets/cce09b7b-745d-457e-8bc6-4242c89c3054" />
 
 5 . NOT responded to sexualized , troll pony .<img width="58" height="20" alt="image" src="https://github.com/user-attachments/assets/05e49d5e-6638-457b-82c8-b8361d9d9c5d" />
+
+<img width="230" height="52" alt="image" src="https://github.com/user-attachments/assets/78334a30-b714-46a2-92d0-2a5aa91ae80e" />
+<img width="230" height="60" alt="image" src="https://github.com/user-attachments/assets/4d629977-d7dc-451b-8fdc-9ba9593ff2cc" />
+
